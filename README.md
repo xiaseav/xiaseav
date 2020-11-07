@@ -1,16 +1,21 @@
-### Hi there 👋
+# xiaseav
+:sunglasses::sunglasses:夏色视频 地址发布:sunglasses::sunglasses:
+==
+:heart: :point_right: 【地址一】 ：https://www.xiase1.com
+------
+:heart: :point_right: 【地址二】 ：https://www.xiase2.com
+------
+:heart: :point_right: 【地址三】 ：https://www.xiase3.com
+------
+:heart: :point_right: 【地址四】 ：https://www.xiase4.com
+------
+:heart: :point_right: 【地址五】 ：https://www.xiase5.com
+------
+:heart: :point_right: 【邮箱联系方式】 ：xisedizhi@gmail.com
+------
+:sunglasses:重要提醒:sunglasses:收藏本页面，避免迷路！
+==
 
-<!--
-**xiaseav/xiaseav** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+-
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+:e-mail: __邮箱联系方式: xisedizhi@gmail.com （以上地址无法访问请发送任意内容获取最新地址）__
